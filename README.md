@@ -1,1 +1,1 @@
-https://noctis.rf.gd/jb
+https://rw.gt.tc/jb
